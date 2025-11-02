@@ -1,5 +1,6 @@
 Smart AI Trainer for physical activity
 
 
-https://github.com/user-attachments/assets/afaf5c6e-7580-496f-9724-b9d00ff68493
+![pushup_session_smart1-ezgif com-video-to-gif-converter](https://github.com/user-attachments/assets/2e84ef5b-070d-4898-af76-1b7109a00166)
+
 
